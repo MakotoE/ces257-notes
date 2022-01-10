@@ -78,3 +78,15 @@
 - A "-ness" model allows identity in an amount of multiple values
   - The spectrum model doesn't allow someone to choose both of two sides, or none of both sides
   - The "-ness" model allows combining multiple traits
+
+# The Charmed Circle
+
+- The Charmed Circle is a diagram by Gayle Rubin illustrating how Western cultures dictate what are good sexual practices and what are bad sexual practices
+    - Inner elements inside the charmed circle describe good sexual acts and the outside circle include bad sexual acts
+    - Good sex practices include: Married, heterosexual, bodies only, no pornography
+    - Bad sex practices include: In sin, homosexual, with manufactured objects, pornography
+- The sex herarchy contains a scale of best to worst in terms of acceptability and labels sexual acts on this scale
+- Highlights the tendency of society to sort sexual acts into good and bad categories
+    - No other areas of daily life are scrutinized as much as sex
+- The good practices are legitimized and considered natural while bad practices are disparaged
+- When society tries to draw a line between good and bad sex, minority and majority groups clash on this judgement

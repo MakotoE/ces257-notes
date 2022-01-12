@@ -105,4 +105,4 @@
     - Including same-sex relationships into "normal"
     - Some percieved homonormativity as discrimination against those who are not cisgender
     - In contemporary times, neoliberal capitalism embraces the abnormal and puts a price on it
-    - It is a form of normalization which denies those are not rich
+    - It is a form of normalization which denies those who are not rich

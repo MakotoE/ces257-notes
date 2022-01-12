@@ -106,3 +106,9 @@
     - Some percieved homonormativity as discrimination against those who are not cisgender
     - In contemporary times, neoliberal capitalism embraces the abnormal and puts a price on it
     - It is a form of normalization which denies those who are not rich
+
+# Heterosexual questionnaire
+
+- 17 questions addressed toward heterosexual people that relate to everyday life, sex, and norms
+- Describes the absurdity of questioning and criticizing gay cultures or just simple everyday life by asking similar questions but with the word "homosexual" replaced with "heterosexual"
+- Highlights the existance of heterosexual privilege

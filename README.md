@@ -13,7 +13,7 @@
         - Intersex - Having sex characteristics that are both male and female. For example, someone can have an external appearance of one sex and have the reproductive system of another sex.
     - Attraction
         - How people are drawn to others sexually, romantically, and in other ways
-        - Kinsey found the people do not have attraction based on binary gender identities but on a seven point scale
+        - Alfred Kinsey found the people do not have attraction based on binary gender identities but on a seven point scale
 - These gender concepts are not interconnected, as someone can have a different gender identity than expression. But
   they are interrelated culturally.
 - Gender can be expressed with a spectrum

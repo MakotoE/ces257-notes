@@ -90,3 +90,19 @@
     - No other areas of daily life are scrutinized as much as sex
 - The good practices are legitimized and considered natural while bad practices are disparaged
 - When society tries to draw a line between good and bad sex, minority and majority groups clash on this judgement
+
+# Normal
+
+- The word "normal" a label that is applied to someone that is typical, ordinary, or unremarkable; the word also carries connotations of violence, target, control, correction, confinement, and elimination.
+- Science and technologies further developed on the idea of normalization through medical and psychiatric definitions and juditial records
+    - Powers that enforce what is normal became active and pervasive
+    - Those that are not normal were discriminated
+- Freak shows exhibited the "abnormal" and reassured people of what is normal
+- "Unsightly beggar laws" defined normal citizens and those who were not
+- Disabled people and other groups deemed not normal were killed in Nazi Germany
+- Gloria Anzaldúa studied the culture of normalization
+- Homonormativity
+    - Including same-sex relationships into "normal"
+    - Some percieved homonormativity as discrimination against those who are not cisgender
+    - In contemporary times, neoliberal capitalism embraces the abnormal and puts a price on it
+    - It is a form of normalization which denies those are not rich

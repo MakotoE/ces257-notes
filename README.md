@@ -112,3 +112,11 @@
 - 17 questions addressed toward heterosexual people that relate to everyday life, sex, and norms
 - Describes the absurdity of questioning and criticizing gay cultures or just simple everyday life by asking similar questions but with the word "homosexual" replaced with "heterosexual"
 - Highlights the existance of heterosexual privilege
+
+# Bisexuals, Passing, and Straight Privilege
+
+- For the author who is bisexual, appearing straight lets them blend into society, but when their sexual orientation is revealed, their straight privileges are taken away
+- Bisexuality is rarely presented in media
+- The author's bisexuality is often questioned and dismissed
+- Bisexual people may have a hard time fitting into the gay community
+- Bisexuality can be a privilege as one could live like a straight person, but other privileges are taken away

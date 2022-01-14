@@ -120,3 +120,40 @@
 - The author's bisexuality is often questioned and dismissed
 - Bisexual people may have a hard time fitting into the gay community
 - Bisexuality can be a privilege as one could live like a straight person, but other privileges are taken away
+
+# 130+ Examples Of Cis Privilege
+
+- A social hierarchy formed out of differences creates privileges for some and disadvantages for the others
+- Cisgender people have privileges that transgender people do not
+- The hierarchy does not just exist at the individual level, but it also exists at the cultural, social, and political levels
+- Individual attitudes and behaviors can either uphold or challenge systems of oppression
+- An ally should acknowledge the social heirarchy and have compassion as a result
+- Privilege is not one-dimensional: A person can have different privileges based on race, sexual orientation, gender, etc.
+- Intersectionality
+    - Experiences of power and privilege are impacted by different aspects of our identities and how they intersect with one another
+    - Feminism without intersectionality leads to an erasure of identities
+- Large-scale injustice can make people with privilege feel bad
+    - Privilege is an opportunity to build compassion and understanding, and to be empowered to make a difference
+- Cis privileges
+    - Less likely to be bullied
+    - Less likely to face harassment for using the bathroom that aligns with your gender
+    - Less likely to be barred from attending gender-specific events
+    - Less likely to drop out of school
+    - Less likely to be misgendered
+    - Less likely to face discrimination in the workplace
+    - Less likely for your gender to be outed
+    - Less likely to receive intrusive questions about your body or gender
+    - Don't need to worry about passing
+    - Have higher paying positions
+    - Less likely to experience homelessness or poverty
+    - Athletes are less likely to be barred from competing on the basis of gender identity
+    - More likely to be elected to office
+    - Represented in the US Census and legal forms
+    - Less likely to need life-saving surgeries that can leave you financially vulnerable
+    - Less likely to be murdered, attacked, or assaulted
+    - Don't need to be mindful of how you act
+    - Less likely to be questioned when using a public restroom
+    - Can show for clothing without fear of being harassed or ridiculed
+    - Can expect your family to not disown you
+    - Less likely to have gender dysphoria
+    - Less likely to be a target of violence, hate crime, and police brutality

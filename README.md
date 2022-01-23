@@ -208,3 +208,27 @@
     - Sexologists study homosexuals
     - What makes queers "tic"? Physical features, character, environment, etc.
     - Homosexuality is regarded as a mental disorder until 1973
+
+# Before Stonewall
+
+1. What sparks the evolution of gay culture (and a gay underground) in the US in the 1920s?
+
+A gay underground was established in San Fransisco, New Orleans, Harlem, and Greenwich Village. In the era of speakeasies, people met others of their kind in bars. Parties happened under the radar.
+
+3. How does WW2 serve as a way for gays and lesbians to find each other?
+
+Men and women serving in segregated companies could explore their feelings away from home and their families. Everyone was needed in the military, regardless of race or sexuality. Women who served had financial independence for the first time in American history and did not have to depend on a husband.
+
+3. Why are gays persecuted in the 1950s? What is going on politically and socially?
+
+The lavender scare during the 1950s was a time when the American government was investigating and persecuting homosexual people in the belief that they were a threat to the country. During this period, Eisenhower's Executive Order 10450 barred gay people from federal employment. As the war was over, women were expected to marry men.
+
+The Mattachine Society and Daughters of Bilitis, formed in the 1950s, were gay rights and lesbian rights organizations, respectively. They started an early uprising against the government witch-hunting.
+
+4. Why do you think gay bars have been a building block of the LGBTQ community
+
+The secretive nature of speakeasies during Prohibition meant that people could meet without (or almost without) fear of arrest. This tradition lived on after Prohibition.
+
+5. This film is old… true. But what did you think of hearing direct voices and testimonies of elders within the LGBTQ community? 
+
+They seemed to have experienced both fear and joy in their lives. They lived through times of oppression and persecution. But by supporting each other in the community, they found moments of joy and comfort, and they showed this through the smiles. To take this away because of sexuality is, what I think, an unspeakable act.

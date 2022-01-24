@@ -232,3 +232,49 @@ The secretive nature of speakeasies during Prohibition meant that people could m
 5. This film is old… true. But what did you think of hearing direct voices and testimonies of elders within the LGBTQ community? 
 
 They seemed to have experienced both fear and joy in their lives. They lived through times of oppression and persecution. But by supporting each other in the community, they found moments of joy and comfort, and they showed this through the smiles. To take this away because of sexuality is, what I think, an unspeakable act.
+
+# Historical Considerations: Before Stonewall
+
+- Romantic friendships/Boston marriages
+    - 1880s-1920s
+    - A couple formed between two women which society saw as cohabitation
+    - Women were not seen as sexual beings
+    - Gender roles were challenged
+    - Rise of feminism
+    - Women wanted to work
+- Roaring 20s
+    - Gay subcultures formed
+    - Post WW1 economy, Prohibition
+    - Flapper: tomboy look with short hair, fringed skirts, illegal drinking and smoking, provocative dancing at clubs
+- Harlem Renaissance
+    - Cultural revival of black subcultures
+    - The white community went to black businesses and black people were only allowed to entertain and not be patrons
+    - Many famous black figures came out
+- WWII
+    - Gay men in war could meet each other
+    - Masculity was tolerated for women in service
+- Nazi Germany
+    - Pink triangle represented gay men, black triangle represented lesbians
+    - Homosexuals were sent to consentration camps
+    - Gay prisoners after camp libration were put in jail
+- Homosexual people were not allowed to serve
+    - Don't Ask, Don't Tell allows gay people to serve if they do not reveal their sexuality
+    - DADT repealed in 2011
+- After the war, traditional women's roles were enforced
+- McCarthyism during 1950s
+    - Communist witch-hunting
+    - Gay bars were raided
+    - Executive Order 10450: Homosexuals barred from federal jobs
+    - Gay organizations such as the Mattachine Society formed to raise awareness of the homophile movement
+- Kinsey scale
+    - Alfred Kinsey interviewed thousands of men and women to study sexuality
+    - Very few people are 100% heterosexual in his 7-point scale
+- Lesbian pulp fiction
+    - Functioned as guidebooks on how to be lesbian
+    - Female authors used pseudonyms
+- Gay physique magazines
+    - Softcore gay porn
+    - Classified as "art" to work around censorship
+- Second sexual revolution in the 1960s
+    - Began challenging the idea that homosexuals are a problem
+    - Civil rights movement, feminism movement, anti-war, hippies

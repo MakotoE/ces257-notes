@@ -278,3 +278,20 @@ They seemed to have experienced both fear and joy in their lives. They lived thr
 - Second sexual revolution in the 1960s
     - Began challenging the idea that homosexuals are a problem
     - Civil rights movement, feminism movement, anti-war, hippies
+
+# How the Stonewall Riots Sparked a Movement
+- Stonewall riots occurred on June 28, 1969
+- A riot occurred at Stonewall Inn in Greenwich Village, New York City
+- Sparked the gay librartion movement
+- In the 1960s, sodomy was illegal in 49 states
+    - Members of the gay community were often subject to violence, harassment, and discrimination
+- Gay bars, such as the Stonewall Inn, were a refuge from the violence
+    - Stonewall Inn was owned by the mafia
+    - Police raids happened at Stonewall Inn, charging people with solicitation of homosexual relations, and not wearing non-gender appropriate clothing
+- On June 28, nine police officers entered Stonewall Inn
+    - A riot ensued and the officers barricaded themselves inside the building
+    - While police reinforcement evacuated the police officers inside, the mob grew into the thousands
+    - Riots continued until July 1
+- Gay Liberation Front
+    - First group to publicly advocate for equal gay rights
+    - On June 28, 1970, the first gay pride parade was organized

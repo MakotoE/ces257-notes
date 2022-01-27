@@ -295,3 +295,17 @@ They seemed to have experienced both fear and joy in their lives. They lived thr
 - Gay Liberation Front
     - First group to publicly advocate for equal gay rights
     - On June 28, 1970, the first gay pride parade was organized
+
+# Did Marsha P. Johnson Start the 1969 Stonewall Riots?
+- Customers had to act "unsuspicious" in the bar to potential police presence
+- Discriminiation existed within the queer community
+    - White gay men looked down on people of color
+    - Gay men looked down on transgender people
+- Marsha P. Johnson, a transgender woman, and Sylvia Rivera were activists
+- During the night of the riots, Johnson threw a shot glass which shattered a mirror
+    - This incited people to start breaking windows and fueled the outrage
+    - Marsha P. Johnson is said to have started the riots and the ensuing gay libration movement
+- Johnson's body was found in the Hudson River on 1992
+    - The police said she died by drowning but others were skeptical
+    - Investigators reclassified the cause of death to undetermined
+- Stonewall Inn became a national landmark on 2016

@@ -318,10 +318,16 @@ At a panel called Psychiatry, Friend or Foe to Homosexuals?, a psychiatrist spok
 
 2. What were some of the main themes discussed about what gay liberation looked like in the 1970s?
 
+In the 1970s, the first openly gay politicians were being elected to office, like Elaine Noble and Harvey Milk. Homophobic laws were being challenged by activists. The anti-war movement and hippie culture was intertwined with queer culture and activism. 
+
 3. What were some of the main themes discussed by lesbian politics and Michigan’s womyn’s festivals?
 
-They talked about 
+They talked about white lesbians and lesbians of color, of literature as a way of communication, and the inclusion of many other groups and cultures such as vegetarianism, people with disablities, and the alcohol addicts.
 
 4. Who was Harvey Milk? Anita Bryant and the Briggs initiative?
 
+Harvey Milk was the first openly gay person elected to office in California. He was assasinated shortly after election. Anita Bryant ran the anti-gay Save Our Children campaign in Florida. It led to the Briggs Initiative which aimed to ban gay people from becoming teatures in Florida. Milk was a opponent of the initiative.
+
 5. Who was ACT UP and Queer Nation?
+
+ACT UP is an organization which advocates for public awareness of AIDS, for better treatment of people with AIDS, and for AIDS research. Queer Nation is an organization that is fighting homophobia.

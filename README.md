@@ -331,3 +331,30 @@ Harvey Milk was the first openly gay person elected to office in California. He 
 5. Who was ACT UP and Queer Nation?
 
 ACT UP is an organization which advocates for public awareness of AIDS, for better treatment of people with AIDS, and for AIDS research. Queer Nation is an organization that is fighting homophobia.
+
+# Historical Considerations: After Stonewall
+
+- Themes of the 1970s
+    - Sex culture of gay men: public sex, cruising
+    - Disco, drugs, hanky codes - identifies sexual proclivities
+    - Bathhouses
+    - Sexual outlaw: Public sex as political demonstration
+    - Lesbians: bookstores, music, poetry
+    - Lesbians were unwelcome in some feminist circles
+        - Radical feminists and lesbian separatists start their own groups
+        - Identity politics: Building social movements around singular identity categories
+- Late 1970s to 1980s
+    - Harvey Milk is elected in 1978 and later killed by Dan White
+    - Briggs Initiative: Bans gays and lesbians from working in public schools (failed vote)
+    - Increase in religious right
+    - Reagan elected in 1980; conservative shift
+    - ACT UP
+- 1990s
+    - Gaining political power and challenging the religious right
+    - Don't Ask Don't Tell: Gay people can join military
+    - Same sex marriage legalized in Hawaii in 1996
+    - Debates on civil unions, domestric partnerships, and marriage
+    - Rights in the workplace
+    - Queer representation in pop culture
+        - Ellen DeGeneres comes out in 1997
+    - The word "queer" emerges as a reclaimed word

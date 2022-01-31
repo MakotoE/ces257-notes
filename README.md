@@ -309,3 +309,19 @@ They seemed to have experienced both fear and joy in their lives. They lived thr
     - The police said she died by drowning but others were skeptical
     - Investigators reclassified the cause of death to undetermined
 - Stonewall Inn became a national landmark on 2016
+
+# After Stonewall
+
+1. How did homosexuality get removed from the DSM?
+
+At a panel called Psychiatry, Friend or Foe to Homosexuals?, a psychiatrist spoke against the idea that homosexuality is an illness under anonymity. In 1974, the APA board voted to declassify homosexuality as a disorder.
+
+2. What were some of the main themes discussed about what gay liberation looked like in the 1970s?
+
+3. What were some of the main themes discussed by lesbian politics and Michigan’s womyn’s festivals?
+
+They talked about 
+
+4. Who was Harvey Milk? Anita Bryant and the Briggs initiative?
+
+5. Who was ACT UP and Queer Nation?

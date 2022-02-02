@@ -358,3 +358,68 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - Queer representation in pop culture
         - Ellen DeGeneres comes out in 1997
     - The word "queer" emerges as a reclaimed word
+
+# What is "Queer"?
+
+- "Queer"
+    - "Queer" was originally refereed to the strange or abnormal
+    - It has been reclaimed as an umbrella term for people outside the heterosexual norm
+    - It challenges the LGBT mainstream and norms around gender and sexuality
+    - LGBT communities in the 1980s reclaimed the word
+        - Queer Nation
+    - Older people may have painful memories of the word "queer"
+    - Queer can be a noun, an adjective, or a verb
+        - To queer something is to resist normal ideals
+- Queer umbrella
+    - Queer activists view the word "queer" for people outside of the mainstream
+    - They question the focus of mainstream LGBT movement because they don't consider everyone inside the queer umbrella who are most marginalized
+- Queer theory
+    - Queer theory is about breaking down binaries which oversimplify the world
+    - Queer theory is about questioning fixed identity categories
+    - Queer studies is a discipline that moves beyond gay/lesbian studies to incorporate other sexualities
+    - Queer activism celebrates differences and opposes the assimilationist idea that LGBT people are normal
+    - Queer activism challenges the commercialization of the gay scene
+    - Opposition to identity politics
+        - Identity politics: Political agendas based upon specific identities
+- Gay rights to queer activism
+    - After Stonewall, gay liberationists fought oppresssion in social systems by emphasizing pride over pity and choice over essentialism
+    - Presented gay and lesbian people as a minority and aimed to achieve rights within the existing social order
+    - Encouraged people to come out and be true to their identity
+    - Queer activism emerged due to the AIDS crisis
+    - The emphasis shifted to practices, the operations of power, and inclusive and issue-based coalitions rather than identity politics
+    - Queer activists pointed out that queers should not be assimilated into heterosexual spaces and that alternative cultures are needed
+- Michel Foucault
+    - Foucault proposed that sexuality is produced by forms of knowledge rather than truths
+    - Society operates like a panopticon, which is a circular prison with a guard tower in the middle that monitors everyone
+    - Because people belive they are being judged, people monitor their own actions to be normal
+    - Consumer capitalism serves to correct flaws through individual responsibility
+    - Power shifted from soverign power of rulers to biopower
+        - Biopower is collective control where everyone watches each other
+    - Western societies emphasizes bodily discipline and achiving normality
+    - The necessity for normality led to the emergence of sexuality as an identity category
+    - Other categories are created based on the body: race, gender, mental health, disability, age, etc.
+    - Self-monitoring benefits the economy through high levels of productivity and high levels of purchasing
+    - It causes alienation to those who are marginalized in any way
+- Judith Butler
+    - Butler is seen as creating queer theory
+    - Black feminists pointed out that being a woman is not the defining feature of identity for them
+    - Reinforcing the idea of woman as a unified identity risked cementing inequality and oppression
+    - Rights based on identity do not support everyone in the identity group. It excludes the marginalized subgroups.
+    - Rights based on identity retain binary assumptions and power relations
+    - Heteroseual matrix
+        - You have a fixed sex -> Culture builds a stable gender -> Gender determines attraction
+        - Butler says that these are not inherently interlinked, unlike the mainstream understanding
+    - Gender is performative: Gender is the result of expressions and behaviors
+    - There is not "authentic" performance of gender. People are imitating what society thinks is normal for their gender.
+- Foucauldian-Butlerian resistance
+    - Resistance to gender and sexual constructs
+    - Recognize that gender and sexuality are multiple and fluid
+    - Question binaries
+    - Parody and subversive performances to disconnect links between existing categories like gender and gender expression
+- Heteronormativity
+    - Cultural assumptions on the normal form of attraction
+    - People are assumed to be heterosexual unless proven otherwise
+    - Homophobia: Negative set of attitudes toward same-sex relationships
+    - Heterosexism: Discrimination in favor of opposite-sex relationships
+    - Homophobia and heterosexism originate from the individual
+    - From a queer perspective, heteronormativity locates problems in cultural assumptions

@@ -422,4 +422,4 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - Homophobia: Negative set of attitudes toward same-sex relationships
     - Heterosexism: Discrimination in favor of opposite-sex relationships
     - Homophobia and heterosexism originate from the individual
-    - From a queer perspective, heteronormativity locates problems in cultural assumptions
+    - From a queer perspective, heteronormativity is reinforced by institutions and policies

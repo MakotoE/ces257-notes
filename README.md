@@ -434,7 +434,7 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
 - Queer identity and politics
     - Emerged in the 1990s
     - Queer is an umbrella term for people outside the cishet norm
-    - Lacks a stable definition for identities; sexuality and gender a fluid and not innate
+    - Lacks a stable definition for identities; sexuality and gender are fluid and not innate
     - Queer rejects binaries
     - Queer draws attention to ways we are not normal to disrupt the idea of normal
     - The current mainstream system is oppressive, binary, and discriminatory, thus rights with heterosexuals do not equal equality and liberation

@@ -438,3 +438,12 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - Queer rejects binaries
     - Queer draws attention to ways we are not normal to disrupt the idea of normal
     - The current mainstream system is oppressive, binary, and discriminatory, thus rights with heterosexuals do not equal equality and liberation
+
+# Dr. Laura, Sit On My Face
+
+- Rocko Bulldagger wants "Dr. Laura" to sit on their face for being ironically right
+- Dr. Laura called queers a "biological error"
+- Whereas the gay and lesbian alliance is trying to fit into mainstream society, queers need an alternative lifestyle
+- Queers are not normal in the popular definition and are proud of it
+- The freaky lifestyle and kinky sex, that homosexuals criticize, is liberating
+- The things that Dr. Laura says is what fuels queer revolution

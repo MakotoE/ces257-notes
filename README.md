@@ -447,3 +447,30 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
 - Queers are not normal in the popular definition and are proud of it
 - The freaky lifestyle and kinky sex, that homosexuals criticize, is liberating
 - The things that Dr. Laura says is what fuels queer revolution
+
+# Queer Kids of Queer Parents Resist the Marriage Equality Agenda
+
+- The "gay rights" movement is advocating for the right to join the military, the right to marriage, amongst other equal rights
+    - Queer activists rejecting the agenda that is supporting military and marriage rights because of its conficts in motive and its collateral effects
+- Gavin Newsom presented the image of supporting gay marriage
+    - He also has a record of increasing incarceration rates, increased policing, and attacking social welfare efforts
+    - A politician with those views would end up hurting the gay marriage movement
+- Monogamous partnership is only one structure of a family
+    - There are many other family structures, and inclusion of the monogamous parternership ignores the others
+    - Queers should not have to assimilate into the traditional family structure
+    - Marriage should not have to be registered with the state for it to be recognized
+    - Marriage is associated with a privilege that is not in other forms of relationships
+    - Certain welfare is only given to married couples and not single moms or extendend families
+- Queer history started with the idea of an alternative lifestyle
+    - Queer communities should challenge traditional family values and raise children in non-traditional ways
+    - Marriage equality tries to put a happy ending to queer history
+    - We should not forget about the AIDS crisis
+    - Marriage equality appropriates the struggles and achievements of many queer communities
+- Marriage equality ignores forces that break families apart
+    - Economic forces like incarceration levels and unaffordable costs of living strains the family
+    - Even with marriage equality, those economic forces make it impossible for marginalized people to be married
+    - Married couples have access to healthcare and leaves others in need of healthcare behind, such as people who are HIV+ and trans individuals who need life-saving care
+- The inclusion of gays in the military only seeks for the expansion of the army
+    - The US military is not in line with our principles
+- 
+    - 

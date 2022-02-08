@@ -502,4 +502,8 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - Describing female body parts as those of male bodies
 - The definition of male and female is very different from person to person, despite people thinking that they are simple categories
     - Since leatherdyke culture tries to be separate from the dominant culture, women/men cannot be applied the same way to leatherdykes
-- 
+- Unitariness of sex/gender status is a myth
+    - You can have a birth certificate one one gender and a drivers license of a different gender
+    - Not all leatherdyke bodys and daddies identify as a single gender
+    - A person's gender can be context-specific
+    - Gender multiplicity and gender fluidity can be exhibited through creative productions

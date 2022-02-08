@@ -472,5 +472,34 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - Married couples have access to healthcare and leaves others in need of healthcare behind, such as people who are HIV+ and trans individuals who need life-saving care
 - The inclusion of gays in the military only seeks for the expansion of the army
     - The US military is not in line with our principles
+
+# Leatherdyke Boys and Their Daddies
+
+- Leatherdyke boys are seen as lesbian/dyke masculine females in queer leather and SM communities
+    - But the author and others participants identify as transmale
+    - Leatherdyke daddies are butch leatherdykes
+    - The leatherdyke culture parallels the gay leather culture
+    - The boundaries of the definitions of female, lesbian, dyke, queer, leather, and butch are blurred
+    - Play parties are their zone that is seperated from the external world
+    - Play functions as a form of gender exploration and resistance
+- Age-play is a common theme
+    - "Boy" and "daddy" bear no relation to legal ages of players
+    - Clothing may indicate status as SM bottoms and butches as well as certain interest
+- Gayle Rubin said: "There are more ways to be butch" than "there are ways for men to be masculine."
+    - Leatherdykes express masculinity in many ways, even more so than males
+    - The culture of leatherdyke and what it means to be masculine can conflict between different leatherdyke subcultures
+    - This contributes to an anxiety on how to express masculinity
+- Leatherdyke boy or daddy play solidifies self-identification
+    - Submission and pain is seen as masculine
+    - Daddy play can let one explore masculine dominance
+    - Exploration of masculine boyhoods and adolescence that were missing from the lives of participants who had female lifestyles growing up
+    - Leatherdyke play is a learning tool and a spiritual exercise
+- Although daddying can be associated with dominance and punishment, it is also about love, support, nurturance, and guidance
+- SM as gender technology
+    - Genderplay enables "retooling" or "recoding" of transgender bodies
+    - Remapping of sexualized zones
+    - The use of dildoes
+    - Describing female body parts as those of male bodies
+- The definition of male and female is very different from person to person, despite people thinking that they are simple categories
+    - Since leatherdyke culture tries to be separate from the dominant culture, women/men cannot be applied the same way to leatherdykes
 - 
-    - 

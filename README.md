@@ -474,7 +474,6 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - The US military is not in line with our principles
 
 # Leatherdyke Boys and Their Daddies
-
 - Leatherdyke boys are seen as lesbian/dyke masculine females in queer leather and SM communities
     - But the author and others participants identify as transmale
     - Leatherdyke daddies are butch leatherdykes
@@ -507,3 +506,23 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - Not all leatherdyke bodys and daddies identify as a single gender
     - A person's gender can be context-specific
     - Gender multiplicity and gender fluidity can be exhibited through creative productions
+
+# Black Gay (Raw) Sex
+
+- This essay is written by Bailey who identifies as black, gay, and as a man. He explains that HIV prevention literature lacks understanding of black gay men's culture.
+- The CDC released a report that 46 percent of black gay men in certain cities were infected with HIV and 67 of those infected were unaware of their HIV infection
+- The common focus of prevention efforts is on condom use, but it has not proven effective in reducing HIV prevalence among black gay men
+- As black gay men tend to have a small socialsexual network, black gay men tend to have a higher chance of being infected
+- In the national HIV prevention agenda, they try to test and treat high-risk individuals. There are financial barriers to testing and treatment among working-class black men.
+    - The ongoing high prevalence of HIV infection among black gay men suggests that prevention efforts are not effective
+- "Raw sex" is a term used by black gay men to describe anal intercourse without a condom
+    - "Barebacking" is a similar term that black gay men do not use
+- Many studies are on barebacking culture and on gift giving/bug chasing
+    - As black gay male cultures do not use the term "barebacking" and there is no evidence that black gay men engage in gift giving, the author comments that those studies have only focused on white gay men
+- HIV prevention discourses have painted a picture of how gay men are promiscuous and are in need of sexual management so that the heterosexuals do not get infected with HIV
+- Raw sex is a sort of political resistance to the safe sex narrative
+- Black gay men want sexual autonomy
+- The risk of raw sex makes it pleasurable
+- Raw sex is a source of intimacy, connection, and self-affirmation that run counter to their exeriences of social disqualification, marginalization, and alienation
+- Social factors should be considered in HIV prevention literature and policies
+    - The perspectives of black gay men are important to consider

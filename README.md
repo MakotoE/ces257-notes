@@ -526,3 +526,44 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
 - Raw sex is a source of intimacy, connection, and self-affirmation that run counter to their exeriences of social disqualification, marginalization, and alienation
 - Social factors should be considered in HIV prevention literature and policies
     - The perspectives of black gay men are important to consider
+
+# Confronting AIDS
+
+- Sexual liberation in 1970s
+- "Patient Zero" was a flight attendant who was gay
+- Many gay men in NY and San Fransisco exhibited cancer-like symptoms, in 1981, that were later found to be AIDS
+- Initially named "gay-related immunodeficiency" and thought to occur only in homosexual people
+    - Media only reported on cases among "innocent people" (not gay people)
+- The government set up a national AIDS hotline which was cut by Reagan
+- In mid 80s, people were panicking over AIDS
+    - Little scientific understanding about HIV, very little social understanding
+    - People with AIDS or gay people are discriminated against
+- In 1987, Reagan gave his first speech on AIDS, after 21,000 people nationally have died
+- ACT UP
+    - AIDS Coalition to Unleash Power
+    - Used direct confrontation to raise awareness of AIDS
+- 1990s
+    - Deaths pass 100,000
+    - Ryan White dies of HIV complications
+    - Ryan White CARE Act was a federal grant for treatments
+    - AZT, the triple cocktail medication, is introduced in 1996 and the death toll decreases
+        - Although very expensive, Brazil cuts prices so that many lives are saved
+        - US sues Brazil and pharmaceutical companies for breaking the monopoly and patents
+- 2000s
+    - HIV/AIDS disproportionately affects black and hispanic community
+    - African American and Hispanic women represent less than 1/4 of US women but account for more than 3/4 of AIDS cases
+    - Men who have sex with men have the highest cases among other types of relationships
+    - Second wave of HIV from younger generations
+    - Bush administration promotes abstinence-only sex education
+    - In 2020, 1.2 million people live with HIV
+    - 14% of those infected with HIV are unaware of status
+- HIV drugs
+    - Pre-exposure prophylaxis (PrEP)
+        - For HIV negative people
+        - Prevention medication
+    - Post-exposeure prophylaxis (PEP)
+        - Taken within 72 hours of exposure to reduce risk of infection
+    - Antiretroviral therapy (ART)
+        - For HIV+ people
+        - Limits progression of HIV into AIDS
+        - Is a cocktail of 3 drugs

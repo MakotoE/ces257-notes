@@ -567,3 +567,40 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
         - For HIV+ people
         - Limits progression of HIV into AIDS
         - Is a cocktail of 3 drugs
+
+# The Sex Markers We Carry
+
+- A lot of daily activities depend on a drivers license
+    - The drivers license contains the person's sex marker
+    - For transgender individuals, the sex marker may be a source of confusion and embarassment
+    - The sex marker can be used as a way to discriminate transgender individuals
+- Some government agencies do not define the terms sex and gender for documents
+- Gender theorists challenge the ideas that gender is an immutable characteristic or that sex is binary
+- Though gender identity and expression are different, they are intertwined through social customs
+- The sex marker on a birth certificate is determined soley by the presence of a penis or vagina
+    - Sex markers on drivers licenses and passports are based on the genitalia at birth
+- Not every parenting couple consists of a mother and a father
+    - Hospitals may use the terms "delivering parent" and "second parent"
+- Intersex individuals have male and female sex characteristics
+    - Medical procedures may be done early in development to "correct" characteristics that do not match their sex
+    - When growing up, intersex individuals may feel conflicted with their identity or body
+- Though birth certificates are used for many programs, the sex marker is not vital to any objective
+- The drivers license and passport depends on the birth certificate
+- The REAL ID Act aimed at standardizing drivers licenses uses the term "gender, drivers licenses use the term "sex," and those terms seem to be used interchangably
+- Birth certificates and drivers licenses used to contain a race marker
+    - Race is subject to perspective of the individual and third-parties
+- Sex marker is not helpful in guarding against identity fraud because people can easily present as another gender
+    - It is even easier to fake sex identity online
+- States used to require sex reassignment surgery or medical treatment as a requirement to change the sex marker
+    - The assumption that there is something to "correct" is misleading
+    - Not all transgender people are "trapped in the wrong body"
+- Adding more sex marker options such as "X" may be supported by non-binary individuals
+    - Some feel stigmatized by the idea of a "separate but equal" category and would not help reduce discrimination
+- Sex classification has been used for two legitimate reasons
+    - Sex-specific policies such as conscription
+    - For sex-based affirmative action policies
+        - Because the sex marker depends on genitalia at birth and not the current sex, it is not relevant and is an invasion of privacy
+- As the racial identity questions on the census has been contested over time, sex classification on the census should be critically assessed
+- Other biometric teachniques like fingerprinting may be more useful due to its unchanging and empirical feature
+    - Biometric collection is invasive and increases government surveillance
+- Removing the sex marker from documents will help reduce sex-identity discrimination

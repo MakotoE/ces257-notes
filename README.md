@@ -604,3 +604,24 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
 - Other biometric teachniques like fingerprinting may be more useful due to its unchanging and empirical feature
     - Biometric collection is invasive and increases government surveillance
 - Removing the sex marker from documents will help reduce sex-identity discrimination
+
+# Bathroom Bouncers
+
+- Khadijah Farmer entered the women's restroom and was suspected of being a man
+    - The bouncer forced her out of the restroom, even if Farmer offered to show her ID card
+    - Farmer often gets funny looks when she enters the restroom due to her masculine presentation
+- A 2008 survey showed that 70% of transgender people in Washington D.C. have been denied access, verbally harassed, or physically assaulted in public restrooms
+- North Carolina had a bathroom bill, HB2, which mandates that people must use the restroom pertaining to their biological sex as indicated on the birth certificate
+- Sexual orientation is commonly mixed with gender expression
+    - When people perceive a person's sexual orientation, they are not observing sexual acts but are judging based on appearence
+    - Therefore, homophobia may be about policing gender norms than policing same-sex activity
+- Race influences transphobia
+    - Farmer was accused of being a black man in the women's restroom
+    - The experience of a black transgender man is different than that of a white transgender man
+    - Society in general is more defensive of black people in restroom than white people
+- The first feminists focused on fighting for women's restrooms in addition to the men's restrooms
+    - Next, the time inequality became of issue where the women's restrooms have long lines unlike men's restrooms
+- Sex-segregation has similarities to racial segregation because of the "equal but seperate" rules
+    - Women's restrooms may be less maintained, which mirrors how the colored restrooms were filthy and unmaintained
+    - However, while colored people were barred from public accommodation, women and men get equal accommodation
+- 

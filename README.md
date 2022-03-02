@@ -624,4 +624,12 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
 - Sex-segregation has similarities to racial segregation because of the "equal but seperate" rules
     - Women's restrooms may be less maintained, which mirrors how the colored restrooms were filthy and unmaintained
     - However, while colored people were barred from public accommodation, women and men get equal accommodation
-- 
+- Segregation is argued to make bathrooms safer
+    - If predetors are breaking the law, they would enter the women's restroom without hesitation
+- The assimilationist approach of a nondiscrimination policy would not work
+    - People are still not prevented from questioning and harassing others
+    - Only provides spaces for binary genders
+    - A gender-neutral bathroom that is apart from the two men and women's sides stigmatizes transgender identities
+- No-gender bathrooms may be the solution
+    - Current segregated bathrooms can be converted into no-gender bathrooms
+    - Single restrooms for all genders are being built

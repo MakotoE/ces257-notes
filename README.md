@@ -633,3 +633,20 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
 - No-gender bathrooms may be the solution
     - Current segregated bathrooms can be converted into no-gender bathrooms
     - Single restrooms for all genders are being built
+
+# Checking a Sex Box to Get into College
+
+- Calliope Wong applied to admission for Smith College
+    - She is a transgender woman
+    - Her application was rejected because the high school transcript had a male sex marker
+    - Even after fixing this, her second application was rejected because the FAFSA documentation listed her sex as male
+    - What documentation serves to prove that someone is of a particular gender or sex?
+- The necessity of a sex marker on college applications is questioned
+    - What definition of sex or gender are they using?
+    - What is the relationship between the sex identity information and educational goals of colleges?
+- A person who was admitted to a women's college as a woman could transition their sex identity to male
+    - Should they be allowed to continue their education at a women's college?
+    - A feminist may argue that by transitioning to male, they gain the benefits of patriarchy and cannot claim the identity of being a woman
+- Michigan Womyn's Music Festival had a history of excluding transgender women
+- Title IX prohibits educational institutions from excluding people on the basis of sex
+    - It exempts single-sex colleges founded before 1972 and religious colleges

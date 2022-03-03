@@ -642,6 +642,7 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - Even after fixing this, her second application was rejected because the FAFSA documentation listed her sex as male
     - What documentation serves to prove that someone is of a particular gender or sex?
 - The necessity of a sex marker on college applications is questioned
+    - Even for coed colleges, the sex marker is required on the application
     - What definition of sex or gender are they using?
     - What is the relationship between the sex identity information and educational goals of colleges?
 - A person who was admitted to a women's college as a woman could transition their sex identity to male
@@ -650,3 +651,19 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
 - Michigan Womyn's Music Festival had a history of excluding transgender women
 - Title IX prohibits educational institutions from excluding people on the basis of sex
     - It exempts single-sex colleges founded before 1972 and religious colleges
+- Single-sex colleges claim that the single-sex environment fosters education
+    - Women's colleges started as a way to fight institutional sexism
+    - They have a responsibility to continue fighting sexism by making radical policy changes
+    - Simple things like an option on a paycheck to divide the salary between the worker and the spouse ignite changes in thinking
+    - Women's colleges can open admission to all genders and retain their feminist mission
+- Smith now explicitly includes transgender women for admission
+    - Whether or not gender-nonforming people or transgender men with a female sex marker are included in their definition is not clear.
+    - None of the men's colleges define men
+- There is an argument that girls and boys of grade school have different brains and need single-sex education
+    - All-black male schools do not empower black boys but marginalize those who do not conform to masculine standards
+    - Some single-sex colleges describe how sexes have different biological makeup
+    - It brings to question how they view transitioning or gender-nonconforming individuals
+    - The use of "artifical constraints" and statistical sex sterotypes often result in nothing but prejudice
+- Colleges should make the sex marker optional on their applications
+    - They should acknowledge the temporaral nature of the sex marker
+    - They can also ask prospective students how their own sex identity relate to the college's mission to fight sexism

@@ -667,3 +667,33 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
 - Colleges should make the sex marker optional on their applications
     - They should acknowledge the temporaral nature of the sex marker
     - They can also ask prospective students how their own sex identity relate to the college's mission to fight sexism
+
+# Seeing Sex in the Body
+
+- Caster Semenya was disqualified from the women's 800 meter
+    - She is female-identifying and intersex
+    - She has hyperandrogenism: has XX chromosomes but elevated androgen levels which makes some body parts appear masculine
+    - She went through a visual genitalia test
+    - Competitors criticized her track records based on her masculine looks
+    - This kind of homophobia may be related to racism, as black women are sterotyped as being more masculine than white women. Serena and Venus Williams have been subject to the same sterotypes.
+- As bodies are directly involved in sport, sex identity is closely inspected
+    - People are also born with other genetic advantages
+    - Sport isn't just about winning; camaraderie, self-discipline, and recreation are part of sport
+- The harm created by sex segregation in sports
+    - Tyranny of the majority
+        - Transgender, intersex, and gender-nonconforming individuals are signaled out
+    - Pushes the sexist idea of sex-based advantage which are not necessarily true
+        - Socioeconomical and cultural factors influence women's records and participation
+    - Restricts where people belong in social groups
+        - Top-level athletes are role-models and people follow these role-models
+        - Sends a message that sex identity is visually obvious and stable over time
+- How the olympics identifies sex
+    - The IOC's first sex-verification policy was a "nude parade" where athletes' genitals were visually examined
+    - The nude parade was replaced with a mouth swab to identify the sex chromosomes
+    - The current test is on the functional teststerone levels
+    - There is no test for being a man
+- In the NCAA, a transgender female athlete using testosterone may only compete as female
+    - A transgender male athlete who is not using testosterone may compete as male or female
+    - A transgender female athlete who is not using hormone treatments may not compete as female
+- Those in favor of sex equality argue that sex segregation enables a fair playing field
+    - It is reminiscent of the "man in the women's bathroom" panic: masculine female players are accused of harming other female players

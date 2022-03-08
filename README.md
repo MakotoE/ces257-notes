@@ -697,3 +697,25 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - A transgender female athlete who is not using hormone treatments may not compete as female
 - Those in favor of sex equality argue that sex segregation enables a fair playing field
     - It is reminiscent of the "man in the women's bathroom" panic: masculine female players are accused of harming other female players
+- Feminism and sports
+    - The 1970s feminist movement focused on assimilation of female athletes into male-only sports. Women's teams were created.
+    - Then, feminists fought for making female sports equal to those of men's
+    - Little League only accepted boys, until 1992 when state court ruled that federal public accommodations nondiscrimination laws apply to Little League
+    - Public accomodations law has been used to assimilate transgender women into female-only organizations
+- A policy that is based on birth sex assumes that our assigned sex determined by the genitals is the same our entire life
+- The LPGA approach to examining trans female golfer's status on a case-by-case basis is a reactive approach rather than a proactive approach
+- Accommodation for female sports
+    - Many female sports organizations use different rules and fields than those of male counterparts
+    - WNBA uses a smaller basketball than NBA, LPGA uses shorter golf courses
+    - It perptuates the idea of female inferiority
+    - There has been no effort to recruit significant number of women for NHL, NFL, PGA, or NBA
+- What sport really means in the commercial world
+    - Sports are sold as a showcase of excellence in talents and gifted abilities
+    - Those talents are usually financially dependent
+    - More marketable athletes gain popularity
+- Administrative bodies should state the purposes for sex-segregation
+    - Organizations should be proactive on inclusion rather than reactive
+    - At highly competitive levels, physiological features like height, weight, and androgen levels should be considered for sorting purposes
+- Sex segregation harms athletes
+    - It harms intersex and transgender athletes
+    - It harms cisgender athletes who are told that they do not fit into masculine and feminine norms

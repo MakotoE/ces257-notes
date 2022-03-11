@@ -719,3 +719,19 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
 - Sex segregation harms athletes
     - It harms intersex and transgender athletes
     - It harms cisgender athletes who are told that they do not fit into masculine and feminine norms
+
+# What's Wrong with Rights?
+
+- Trans equality advocates have pursed reform in: anti-discrimination laws that protect gender identities and hate crime laws
+- Discrimination and violence against people of color have persisted despite hate crime laws
+    - Systemic racism has not been addressed by the laws
+- Anti-discrimination laws are not adequetly enforced
+    - Most people who are discrminated against cannot afford legal help
+    - The Supreme Court has made it hard to prove discrimination
+    - Trans litigants have lost discrmination cases regarding bathrooms at work, because it was not interpreted as a violation of law
+- Discrimination laws fail to understand how racism works and fails to effectively address it
+    - Discrimination laws categorizes actors of racism into perpetrator and victim, which makes racism seem like individual problems. Systemic racism involves more than just the perpetrator.
+    - Racial divide in schools and their conditions and budgets are not understood as violations under discrimination laws
+    - Discrimination laws assume that the playing field is fair for everyone when it is inherently unequal
+    - Fixing discriminatory policies do not solve systematic racism and transphobia
+    - 

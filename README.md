@@ -733,5 +733,15 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - Discrimination laws categorizes actors of racism into perpetrator and victim, which makes racism seem like individual problems. Systemic racism involves more than just the perpetrator.
     - Racial divide in schools and their conditions and budgets are not understood as violations under discrimination laws
     - Discrimination laws assume that the playing field is fair for everyone when it is inherently unequal
-    - Fixing discriminatory policies do not solve systematic racism and transphobia
-    - 
+    - Fixing discriminatory policies does not solve systematic racism and transphobia
+- Hate crime laws work by punishing the perpetrator
+    - The perpetrator is not informed of all laws, so laws will not stop their bias-motivated violence 
+    - Hate crime laws would not increase the life chances of victims
+    - Hate crime laws legitimize the criminal punishment system
+    - Would the queer community feel comfortable siding with the police who also colludes with racist, transphobic attacks on citizens?
+    - Hate crime laws give an illusion that the criminal punishment system provides safety while it only increases violence
+    - Even though hate crime laws aim to punish bad people, it only locks up marginalized communities
+    - Hate crime laws add more people to the list that the criminal justice system can lock up
+    - Prison reform efforts only succeed in increasing the budgets of prisons
+- We need to examine how welfare systems, punishment systems, health care systems, immigration systems, etc. sort people into security or insecurity.
+    - We can use legal reform to dismantle capitalist involvement in politics and create alternative methods of meeting human needs and organizing political participation

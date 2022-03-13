@@ -745,3 +745,28 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - Prison reform efforts only succeed in increasing the budgets of prisons
 - We need to examine how welfare systems, punishment systems, health care systems, immigration systems, etc. sort people into security or insecurity.
     - We can use legal reform to dismantle capitalist involvement in politics and create alternative methods of meeting human needs and organizing political participation
+
+# How to Make Prisons Disappear
+
+- Tan, Juan, and Lal were people arrested by ICE whos lives are vastly different.
+    - Shirley Tan
+        - Tan was arrested for violating a court order for deportation
+        - She is in a lesbian partnership and follows many suburban family values
+        - Attends church
+        - Their sons go to Catholic school
+        - Her testemony painted the picture that contrasted the common idea of an "illegal alien"
+    - Juan
+        - Juan was in a Greyhound bus when he was arrested for his undocumented status
+        - His working-class parents bailed him out of jail
+    - Perna Lal
+        - Her life was marked by parental abuse due to her queer identity
+- Uniting American Familes Act
+    - A bill to ammend immigration laws to eliminate discrimination
+    - Would allow the permanent partner of a citizen to obtain permanent resident status
+    - It forces immigrants to demonstrate many American ideals like a working parent and a stay-at-home parent
+    - Though the UAFA would help Tan, it wouldn't be useful for Jan or Lal since they are not in a partnership
+- For queer immigrants seeking asylum, they have to prove repression in their home country while hiding their non-normative backgrounds.
+    - The idea of family reunification is preferred over labor issues. Many queers leave their families due to an unwelcome family.
+    - "Free trade" acts like NAFTA have forced families to immigrate because their home countries' economy has been laid to waste
+- The immigration system is highly biased against queer people
+    - Victoria Arellano died of complications from AIDS while in the custody of ICE because she was denied medication

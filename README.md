@@ -794,3 +794,13 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - If people want to adopt BLM into their own movement, they should credit the lineage of adopted work
     - They should acknowledge the legacy of Black contributions for the struggle for human rights
     - Acknowledge that Black lives matter
+
+# The Fat Boi Diaries
+
+- The author takes selfies of themself and posts them online even though the world prefers perfect bodies
+    - The author describes themself as fat, dark, has a wide nose, has kinky hair, messy eyebrows, and visible pores
+    - The author has a body that is far from what society would call perfect
+- The author does not have the body privilege or race privilege granted to others
+    - They used share selfies to understand what others thought of them
+    - Now they share their selfies to express their true physical identity
+    - They want people to see that they are human and that they don't need to explain their existance

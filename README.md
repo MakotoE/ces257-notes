@@ -810,3 +810,52 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
 - By Mark Aguhar
 - Ignore others' judgement
 - Be yourself; don't conform to others' idea of normal
+
+# These Joyful Photos Celebrate Transmasculine People
+
+- Features 15 transmasculine people and their experiences
+- Miyagi Superior Scott (He/Him)
+    - Differences are illusions, we are more connected than separated
+- Brandes Yenchick (He/Him)
+    - Masculine most of the time but loves to explore his fluidity
+    - "gender identity doesn't describe who I am, my gender expression does"
+- Jaxson Marie (He/Him or They/Them)
+    - Identifies as demiboy
+    - Wants to wear what he wants without his gender being assumed
+- Lucas Eliot (He/Him) 
+    - Identifies as trans male with a female experience
+    - "We're just like cisgender people."
+- Tashan Lovemore (He/Him/Emperor)
+    - Believes being trans in New York grants him privilege because of trans-inclusive services and care
+- Lex Horwitz (They/Them)
+    - Non-binary transmasculine
+    - As society has created gender, society can also dismantle gender
+- Landyn Pan (He/They)
+    - He is usually assumbed to be cis, and that comes with privileges
+    - When people find out he is trans, people ask invasive questions like what his former name was
+- Julian Van Horne (He/Him)
+    - Identifies as transmasculine who likes to explores his feminine side
+    - He has faced many obstacles being trans
+    - Wants people to be educated about trans issues and to speak up if someone is being transphobic
+- Sir Knight (Sir/He/King)
+    - Identifies as a Black Royal Man
+    - His two labels, man and Black, are strongly connected and either one cannot exclusively describe him
+- Savy Dunlevy (They/Them)
+    - Trans-masculine and gender non-conforming
+    - Although labels can describe a person, they are more than just the labels
+- Chett D’Angelo (He/Him)
+    - Trans man
+    - When people make transphobic comments about Chett, he knows that they have nothing to do with him
+- Devin-Norelle (Ze/Zim/Zis)
+    - Androgynous and non-binary
+    - Ze wants to break down the misconception that non-binary people must have a certain look
+- Marquise Vilsón (He/Him/Marquise)
+    - Wants cis people to know that his existence is not a burden or problem
+    - Is inspired by marginalized people who persist to exist
+- Theo Germaine (They/Them and He/Him)
+    - Non-binary, transmasculine, androgynous boy
+    - Is tired of being objectified, fetishized, and assulted. Dislikes when people vocalize confusion about their gender identity or pronouns.
+- Zach Barack (He/Him)
+    - Transmasculine
+    - The best way to support trans people is to listen and spread valid information
+    - Make sure people are being gendered correctly, don't make jokes out of trans people, and don't dehumanize trans people

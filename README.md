@@ -770,3 +770,27 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - "Free trade" acts like NAFTA have forced families to immigrate because their home countries' economy has been laid to waste
 - The immigration system is highly biased against queer people
     - Victoria Arellano died of complications from AIDS while in the custody of ICE because she was denied medication
+
+# A Herstory of the #BlackLivesMatter Movement
+
+- Alicia Garza, Patrisse Cullors, and Opal Tometi started the #BlackLivesMatter hashtag
+    - It was a call to action after the murder of Trayvon Martin
+    - Black Lives Matter stands against anti-Black racism
+- People started adopting BLM into their own movements like All Lives Matter
+    - They did not acknowledge the origins of BLM and the BLM mission
+    - They ignore the exploitation of Black people and white supremacy
+    - Staight men erased the work of queer Black women
+    - BLM struggles with anti-Black racism even within its own community
+- What BLM is
+    - BLM addresses the extrajudicial killings of Black people by police
+    - BLM affirms the lives of Black queer people, including disabled and undocumented folks
+    - BLM centers those that have been marginalized by other liberation movements to rebuild the Black liberation movement
+    - The phrase Black Lives Matter refers to how Black people are deprived of basic human rights and dignity
+- Black lives matter as much as anyone else's
+    - When the opression against Black people stops, everyone will benefit as well
+    - When Black people get free, everybody gets free
+    - BLM stands in solidarity with other oppressed people because their goals are shared
+- Adopting BLM
+    - If people want to adopt BLM into their own movement, they should credit the lineage of adopted work
+    - They should acknowledge the legacy of Black contributions for the struggle for human rights
+    - Acknowledge that Black lives matter

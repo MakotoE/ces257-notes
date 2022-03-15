@@ -804,3 +804,9 @@ ACT UP is an organization which advocates for public awareness of AIDS, for bett
     - They used share selfies to understand what others thought of them
     - Now they share their selfies to express their true physical identity
     - They want people to see that they are human and that they don't need to explain their existance
+
+# Litanies to My Heavenly Brown Body
+
+- By Mark Aguhar
+- Ignore others' judgement
+- Be yourself; don't conform to others' idea of normal
